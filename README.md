@@ -1,0 +1,1 @@
+# Algoritimo-de-predi-o-de-terremotos
